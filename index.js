@@ -1,1 +1,2 @@
-akmal fahri kalah main pes
+akmal fahri kalah main pe
+thjykuk
